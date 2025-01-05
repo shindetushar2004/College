@@ -1,0 +1,2 @@
+# School 
+Dinbai high school
